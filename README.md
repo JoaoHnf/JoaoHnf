@@ -11,7 +11,7 @@
 - 👋 Hi, I’m @JoaoHnf
 - 👀 I’m interested in the progamming market, games, and general tecnology aspects.
 - 🌱 I’m currently learning Javascript
-- 💞️ I’m looking to collaborate on everyone, and i pretend to help where can i be useful.
+- 💞️ I’m looking to collaborate with everyone, and i pretend to help where can i be useful.
 - 📫 How to reach me: www.linkedin.com/in/joão-henrique-do-nascimento-filho-17319825b / Instagram : @joaoh_nf
 
 Tks to come!
